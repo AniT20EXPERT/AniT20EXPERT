@@ -1,4 +1,4 @@
-### Hi there, I'm [ANIRUDH] 👋
+### Hi there, I'm [ANI] 👋
 
 I'm passionate about problem-solving and exploring the vast world of cloud computing. Here's a bit about me:
 
