@@ -8,9 +8,7 @@ I'm passionate about problem-solving and exploring the vast world of cloud compu
 - 🤝 I'm always open to collaborating on exciting projects in the cloud computing space.
 - 📚 In my free time, I love to read tech blogs and stay up-to-date with the latest industry trends.
 
-### Connect with Me
 
-www.linkedin.com/in/anirudhha-dalal-21718b279
 
 
 
